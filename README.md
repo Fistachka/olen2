@@ -1,15 +1,15 @@
 <span id="ru"><a href='#ru'>🇷🇺</a> &nbsp;&nbsp;&nbsp;<a href='#en'>🇺🇸</a> &nbsp;&nbsp;&nbsp;</span><br><br>
 
-"Лесной олень"  Аида Ведищева 1971г. 1 часть
-![2](https://github.com/user-attachments/assets/0eb76860-679f-4aa2-96b5-abb334a75d6f)
+"Лесной олень"  Аида Ведищева 1971г. 2 часть
+![4](https://github.com/user-attachments/assets/ac3c0b89-495d-49f3-8354-07d98f8b2bdf)
 
 <iframe width="315" height="560" src="https://www.youtube.com/embed/d0nIFq17EJU" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 <iframe width="560" height="315" src="https://www.youtube.com/embed/vzyCIM9U_Is" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
-Осенью в дождливый серый день,
-проскакал по городу олень.
-Он летел над гулкой мостовой,
-рыжим лесом, пущенной стрелой!
+Он бежал и сильные рога,
+задевали тучи и облака.
+И казалось будто бы над ним,
+становилось небо голубым!
 
 Вернись лесной олень,
 По моему хотенью.
@@ -20,21 +20,21 @@
 Умчи меня туда лесной олень!
 
 Предыдущий урок:
-![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/5e884faa-2083-4217-aa36-e99e34bc3075 =200x200)
-stolbitsa.com/fistachka/snegurochka2<br><br>
+![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/92c5eae6-cee4-439e-8131-0e465a5dcb72 =200x200)
+stolbitsa.com/fistachka/olen<br><br>
 
 <span id="en"><a href='#ru'>🇷🇺</a> &nbsp;&nbsp;&nbsp;<a href='#en'>🇺🇸</a> &nbsp;&nbsp;&nbsp;</span><br><br>
 
-"The Magic Deer" (song) by Aida Vedishcheva. 1 st verse
-![2](https://github.com/user-attachments/assets/0eb76860-679f-4aa2-96b5-abb334a75d6f)
+"The Magic Deer" (song) by Aida Vedishcheva. 2 st verse
+![4](https://github.com/user-attachments/assets/ac3c0b89-495d-49f3-8354-07d98f8b2bdf)
 
 <iframe width="315" height="560" src="https://www.youtube.com/embed/kH3D0z1j3Jw" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 <iframe width="560" height="315" src="https://www.youtube.com/embed/-GQ_ENCXogw" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
-Osen'yu v dozhdlivyj seryj den',
-proskakal po gorodu olen'.
-On letel nad gulkoj mostovoj,
-ryzhim lesom, pushchennoj streloj!
+On bezhal i sil'nye roga,
+zadevali tuchi i oblaka.
+I kazalos' budto by nad nim,
+stanovilos' nebo golubym!
 
 Vernis' lesnoj olen',
 Po moemu hoten'yu.
@@ -45,10 +45,6 @@ Gde byl' zhivyot i nebyl',
 Umchi menya tuda lesnoj olen'!
 
 Previous lesson:
-![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/5e884faa-2083-4217-aa36-e99e34bc3075 =200x200)
-stolbitsa.com/fistachka/snegurochka2<br><br>
+![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/92c5eae6-cee4-439e-8131-0e465a5dcb72 =200x200)
+stolbitsa.com/fistachka/olen<br><br>
 
-
-
-![4](https://github.com/user-attachments/assets/ac3c0b89-495d-49f3-8354-07d98f8b2bdf)
-![3](https://github.com/user-attachments/assets/95ad75c6-0033-4a0a-ada6-0d725dd39e97)
