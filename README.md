@@ -3,7 +3,7 @@
 "Лесной олень"  Аида Ведищева 1971г. 2 часть
 ![4](https://github.com/user-attachments/assets/ac3c0b89-495d-49f3-8354-07d98f8b2bdf)
 
-<iframe width="315" height="560" src="https://www.youtube.com/embed/d0nIFq17EJU" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
+<iframe width="315" height="560" src="https://www.youtube.com/embed/jhM0QfpEOwU" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 <iframe width="560" height="315" src="https://www.youtube.com/embed/vzyCIM9U_Is" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
 Он бежал и сильные рога,
@@ -28,7 +28,7 @@ stolbitsa.com/fistachka/olen<br><br>
 "The Magic Deer" (song) by Aida Vedishcheva. 2 st verse
 ![4](https://github.com/user-attachments/assets/ac3c0b89-495d-49f3-8354-07d98f8b2bdf)
 
-<iframe width="315" height="560" src="https://www.youtube.com/embed/kH3D0z1j3Jw" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
+<iframe width="315" height="560" src="https://www.youtube.com/embed/1mj2iMQoyDQ" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 <iframe width="560" height="315" src="https://www.youtube.com/embed/-GQ_ENCXogw" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
 On bezhal i sil'nye roga,
