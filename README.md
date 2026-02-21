@@ -4,7 +4,7 @@
 ![4](https://github.com/user-attachments/assets/ac3c0b89-495d-49f3-8354-07d98f8b2bdf)
 
 <iframe width="315" height="560" src="https://www.youtube.com/embed/jhM0QfpEOwU" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vzyCIM9U_Is" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dOkc0oslLxg" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
 Он бежал и сильные рога,
 задевали тучи и облака.
@@ -29,7 +29,7 @@ stolbitsa.com/fistachka/olen<br><br>
 ![4](https://github.com/user-attachments/assets/ac3c0b89-495d-49f3-8354-07d98f8b2bdf)
 
 <iframe width="315" height="560" src="https://www.youtube.com/embed/1mj2iMQoyDQ" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-GQ_ENCXogw" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/a--i7oNM-ww" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
 On bezhal i sil'nye roga,
 zadevali tuchi i oblaka.
